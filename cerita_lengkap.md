@@ -1,99 +1,166 @@
-Bab 1
-Pembuka
+#Bab 1: Pembuka
 
-Di sebuah hutan bernama Aetheria. Tinggallah seekor Kancil. Kancil dikenal oleh penghuni hutan sebagai hewan yang cerdas dan memiliki banyak akal. Selain pintar kancil juga senang berteman dengan hewan apapun yang ada di hutan. Karena itulah Kancil disebut sebagai teman semua hutan. Teman kancil merasa senang ketika kancil dapat membantu menyelesaikan masalahnya menggunakan kecerdasan kancil. Kancil merasa senang karena kecerdasan nya juga dapat membantu teman-teman nya yang sedang dalam kesulitan menjadi terbantu.
+#Di sebuah hutan bernama Aetheria. Tinggallah seekor Kancil. Kancil dengan tubuhnya yang tak lebih besar dari seekor harimau, kaki kecil dan ramping seperti sebuah ranting kayu. Kancil adalah hewan yang terkenal di hutan Aetheria oleh penghuni hutan sebagai hewan yang cerdas dan memiliki banyak akal. Selain dikenal karena sosoknya yang pintar, kancil juga dikenal sebagai hewan yang suka menolong penghuni hutan lain ketika sedang dalam kesulitan. Alasan itu yang membuat kancil bisa memiliki banyak teman.
 
-Bab 2
-Si Kancil dan Harimau Yang Lapar
+#Kicau burung bersatu dengan suara alam. Cahaya matahari pagi menembus dedaunan menuju ke dalam sarang. Setetes air jatuh mengenai kancil yang tidur. Kancil dengan perlahan membuka matanya. Meregangkan badannya dari tidur. Melangkah perlahan ke luar sarang.
 
-Di suatu hari yang cerah di hutan, seekor Kancil sedang berjalan-jalan mencari makanan. Tiba-tiba, ia mendengar suara geraman yang menakutkan. Ternyata itu adalah Harimau yang sangat kelaparan!
+"Selamat pagi Kancil, apakah kau ingin berpetualang lagi hari ini?", burung Kutilang dari atas pohon.
 
-"Hai Kancil, aku sangat lapar. Kau akan menjadi santapanku hari ini!", Harimau berkata dengan nafsu lapar.
+#Kancil sangat suka berpetualang karena dia bisa mendapatkan pengalaman baru ataupun teman baru.
 
-Kancil yang cerdik tidak panik. Ia berpikir cepat dan berkata, "Wahai Harimau yang agung, tentu saja aku tersanjung menjadi santapanmu. Tapi, apakah kau yakin ingin memakan daging sekecil dan sekurus aku ini? Aku punya ide yang lebih baik!"
+"Tentu saja! Hari ini aku akan menyusuri hutan dan melakukan petualangan lagi!" kata Kancil dengan semangat
+"Sampai jumpa lagi Kutilang".
 
-Harimau menjadi penasaran dan bertanya, "Apa idemu, Kancil?"
+"Sampai jumpa lagi Kancil".
+
+#Dengan lincah Kancil berlari menuju ke hutan.
+
+
+
+#Bab 2: Si Kancil dan Harimau Yang Lapar
+
+#Kancil berlari dengan lincah sambil melompat-lompat. Namun tiba-tiba, ia mendengar suara geraman dari balik semak. Kancil dengan rasa penasaran pun mengintip. Dengan terkejutnya kancil melihat yang ternyata itu adalah Harimau. Saat kancil mengintip ia tak sengaja menginjak ranting hingga mengeluarkan suara yang membuat harimau sadar.
+
+"Siapa disana! Cepat keluar atau kuterkam karena aku sangat lapar!", Harimau berkata dengan keras.
+
+#Kancil dengan kakinya yang gemetar berjalan perlahan keluar semak.
+
+"Ohhh, ternyata kau kancil..."
+
+"Hai, Harimau apa kabar....", Dengan berusaha tenang kancil menjawab.
+
+"Pas sekali, hai Kancil, aku sangat lapar. Kau akan menjadi santapanku hari ini!", Harimau berkata dengan nafsu lapar.
+
+#Kancil yang cerdik tidak panik. Ia berpikir bagaimana agar bisa lepas dari Harimau yang lapar. 
+
+"Wahai Harimau yang agung, tentu saja aku tersanjung menjadi santapanmu. Tapi, apakah kau yakin ingin memakan daging sekecil dan sekurus aku ini? Aku punya ide yang lebih baik!"
+
+#Harimau menjadi penasaran dan bertanya.
+
+"Apa idemu, Kancil?"
 
 Kancil menjawab, "Di balik semak-semak itu ada seekor kerbau gemuk yang sedang tidur. Pasti dagingnya lebih lezat dan mengenyangkan daripada aku"
 
-Kancil mencoba untuk mengelabui sang harimau. Harimau setuju dan mengikuti rencana Kancil. Mereka mendekati semak-semak itu perlahan-lahan. Kancil berbisik, "Sekarang, kau harus melompat sekuat tenaga ke arah semak-semak itu!"
+#Kancil mencoba untuk mengelabui sang harimau. Harimau dengan sejenak berpikir lalu Harimau setuju dan mengikuti rencana Kancil. Mereka mendekati semak-semak itu perlahan-lahan dan mengintip. terlihat warna abu abu yang besar. 
 
-Tanpa berpikir panjang, Harimau melompat dan BYUR! Ternyata di balik semak-semak itu adalah sebuah sungai. Harimau tercebur dan hanyut terbawa arus.
+Kancil berbisik, "Sekarang, kau harus melompat sekuat tenaga ke arah semak-semak itu!"
 
-"Tunggu lah pembalasan aku kancil!!!", Harimau berkata dengan penuh marah dan keras.
+"Oke", Harimau menjawab dengan suara pelan.
 
-Kancil tertawa geli dari tepi sungai. Kemudian pergi dan melanjutkan perjalanan...
+Tanpa berpikir panjang, Harimau melompat dan Tung!. Suara dentungan berbunyi keras. Harimau pun pingsan. Ternyata yang diterkan harimau adalah sebuah batu besar yang menyerupai kerbau yang tertidur.
 
-Bab 3
-Si Kancil dan Buaya Sang Raja Sungai
+"Hahahaha.." kancil tertawa dengan riang karena telah berhasil menipu Sang Harimau. Dengan hati yang riang Kancil meninggalkan harimau yang tergeletak pingsan dan melanjutkan petualangannya.
 
-Tiba di tepi sungai yang lebar, Kancil kecil berdiri dengan bingung. Ia ingin menyeberang, tapi airnya terlalu dalam dan arusnya deras. Tiba-tiba, ia melihat sekumpulan Buaya yang sedang berjemur di permukaan air.
+#Bab 3: Si Kancil dan Buaya Sang Raja Sungai
 
-Kancil pun mendapat ide cemerlang. Ia berteriak, "Hai para Buaya! Aku punya tugas penting dari Raja Hutan!"
+#Langkah kaki terus melangkah bahkan sesekali melompat melewati dedaunan dan semak. Namun tiba-tiba langkah kancil terhenti setelah tiba di tepi sungai yang lebar. Kancil berdiri dengan bingung bagaimana ia dengan badan dan kaki kecilnya bisa melewati sungai ini tanpa tenggelam dan terbawa arus. Saat dalam kebingungan dia melihat kawanan Buaya tak jauh darinya. Kancil terpikirkan sebuah ide dan dengan memberanikan diri Kancil menghampiri kawanan buaya.
 
-Buaya mendekati sang kancil. Para Buaya penasaran dan bertanya, "Tugas apa itu, Kancil?"
+"Hai Buaya, aku punya berita penting dari sang Raja Hutan"
 
-Dengan percaya diri, Kancil menjawab, "Raja Hutan ingin tahu berapa jumlah Buaya di sungai ini. Beliau menyuruhku menghitung kalian semua!"
+#Buaya yang kaget atas kedatangan kancil kemudian bertanya
 
-Buaya-buaya itu merasa tersanjung karena Raja Hutan memperhatikan mereka. Pemimpin Buaya berkata, "Baiklah, kami akan membantumu. Bagaimana caranya?"
+"Berita apa itu Kancil?"
 
-Kancil menjelaskan rencananya, "Kalian harus berbaris dari tepi sini sampai ke seberang sana. Aku akan melompat di atas punggung kalian sambil menghitung. Dengan begitu, aku bisa menghitung dengan tepat!"
+#Kancil yang telah mendapatkan ide tadi pun akhirnya menyampaikan ke pada Buaya.
 
-Para Buaya setuju dan mulai berbaris rapi dari tepi ke tepi. Kancil pun mulai melompat dari satu punggung Buaya ke punggung lainnya, sambil menghitung dengan lantang.
+"Aku ingin memberi tahu mu, bahwa Raja Hutan akan mengadakan sebuah pesta besar", Kancil berkata.
+
+"Benarkah itu, Kancil?"
+
+"Benar.."
+
+#Kawanan buaya pun merasa senang karena akhirnya mereka bisa makan sepuasnya.
+
+"Tapi aku harus menghitung jumlah kalian agar makanan disana nanti cukup"
+
+#Kancil mencoba menipu buaya dengan berpura-pura bahwa Raja Hutan akan mengadakan sebuah pesta besar dan membujuk buaya agar dia bisa menghitung jumlah mereka sambil menyebrang sungai.
+
+"Kalian harus berbaris dari tepi sini sampai ke seberang sana. Aku akan melompat di atas punggung kalian sambil menghitung. Dengan begitu, aku bisa menghitung dengan tepat!"
+
+"Oke Kancil", Buaya setuju dengan usulan kancil.
+
+Para Buaya mulai berbaris rapi dari tepi ke tepi. Kancil pun mulai melompat dari satu punggung Buaya ke punggung lainnya, sambil menghitung dengan lantang.
 
 "Satu... dua... tiga..." Kancil terus melompat dan menghitung.
 
-Akhirnya, Kancil sampai di seberang sungai. Ia melompat ke daratan dan bersorak, "Terima kasih, wahai Buaya-buaya yang baik! Aku sudah selesai menghitung. Akan kulaporkan pada Raja Hutan!"
+#Akhirnya, Kancil sampai di seberang sungai. Ia melompat ke daratan dan bersorak.
 
-Para Buaya merasa bangga telah membantu. Sementara itu, Kancil tertawa dalam hati karena berhasil menyeberang sungai dengan selamat berkat kecerdikannya.
+"Terima kasih, wahai Buaya-buaya yang baik! Aku sudah selesai menghitung. Akan kulaporkan pada Raja Hutan!"
 
-Kancil pergi dan melanjutkan perjalanannya...
+#Para Buaya merasa senang karena tak sabar menunggu pesta Raja Hutan. Sementara itu, Kancil tertawa dalam hati karena berhasil menyeberang sungai dengan selamat berkat kecerdikannya dalam menipu para buaya.
 
-Bab 4
-Si Kancil dan Sang Petani
+#Kancil pun pergi dan melanjutkan perjalanannya...
 
-Dalam perjalanan si Kancil merasa lapar dan teringat kebun timun milik petani. Kebun itu dipenuhi timun segar yang menggoda, tetapi juga ada jebakan yang dipasang petani untuk menangkap hewan liar. Namun, Kancil memiliki rencana untuk menjebak petani dengan kecerdikannya.
+#Bab 4: Si Kancil dan Sang Petani
 
-Saat Kancil mendekati kebun, dia melihat petani sedang memeriksa jebakannya di antara semak-semak. "Kalau aku bisa menarik perhatian petani, mungkin aku bisa mengambil timun tanpa terjebak," pikir Kancil.
+#Dalam perjalanan si Kancil tiba-tiba merasa lapar karena dari mulai perjalanan dia belum makan apa-apa. Kancil teringat kebun timun milik petani yang tak jauh dari hutan ini. Kebun itu dipenuhi timun segar yang enak, tetapi karena hal itu juga ada jebakan yang dipasang petani untuk menangkap hewan liar yang mencoba memakan hasil panennya. Namun, Kancil memiliki rencana untuk menjebak petani dengan jebakannya sendiri.
 
-Kancil bersembunyi di balik semak-semak dan mulai membuat suara gaduh, seolah-olah ada hewan lain di sana. Suara itu membuat petani terkejut dan langsung berlari menuju asal suara. Kancil mengamati petani yang semakin mendekat dengan hati-hati.
+#Saat Kancil tiba dan mendekati kebun, dia melihat petani sedang memeriksa jebakannya di antara semak-semak.
 
-Begitu petani mendekat, Kancil berlari menuju jebakan yang sudah dipasang sebelumnya. Petani, yang sangat fokus mencari sumber suara, tidak menyadari bahwa dirinya sudah terlalu dekat dengan jebakannya sendiri.
+"Kalau aku bisa menarik perhatian petani, mungkin aku bisa mengambil timun enak itu tanpa terkena jebakan" pikir Kancil.
 
-Ketika Kancil melompat ke samping, petani terperosok ke dalam jebakan yang dia pasang sendiri. "Sial?!" serunya dengan bingung, melihat dirinya terjebak.
+#Kancil bersembunyi di balik semak-semak dan membuat suara gaduh, seolah-olah ada hewan di sana. Suara itu membuat petani terkejut dan langsung berlari menuju asal suara. Kancil mengamati petani yang semakin mendekat dengan hati-hati.
 
-Si Kancil berdiri di luar jebakan. Dengan rasa puas, Kancil kemudian melompat ke barisan timun dan mengambil satu timun yang segar. “Yum! Enak sekali!” pikirnya sambil menggigit timun itu.
+#Begitu petani mendekat, Kancil berlari menuju jebakan yang sudah dipasang sebelumnya. Petani, yang sangat fokus mencari sumber suara, tidak menyadari bahwa dirinya sudah terlalu dekat dengan jebakannya sendiri.
 
-Setelah puas, Si Kancil melarikan diri dari kebun dengan cepat, meninggalkan petani yang masih berjuang untuk keluar dari jebakannya. Dengan kecerdikan dan kelincahannya, Kancil berhasil mendapatkan timun yang diinginkannya tanpa tertangkap.
+#Ketika Kancil melompat ke samping, petani tanpa sadar menginjak jebakannya sendiri dan terperosok ke dalam jebakan yang dia pasang sendiri. 
 
-Perutnya kenyang dan hatinya bahagia. Kemudian kancil lanjut menelusuri hutan...
+"Sial?!", seru Sang Petani dengan marah melihat dirinya terjebak di jebakan sendiri.
 
-Bab 5
-Si Kancil dan Si kura Kura
+#Si Kancil berdiri tak jauh. Dengan rasa puas, Kancil kemudian melompat ke kebun timun dan mengambil satu timun yang segar. 
 
-Dalam perjalanan saat melintasi tepi sungai, dia melihat Kura-kura yang terjebak di antara batu-batu besar. Kura-kura tampak panik, berusaha keluar tetapi tidak berhasil.
+“Yum! Enak dan segar sekali!” pikirnya sambil menggigit timun itu.
 
-Si Kancil mendekat dan bertanya, "Hei, Kura-kura! Apa yang terjadi? Kenapa kamu terjebak di sini?"
+#Setelah puas, Si Kancil melarikan diri dari kebun dengan cepat, meninggalkan petani yang masih berjuang untuk keluar dari jebakannya. Dengan kecerdikan dan kelincahannya, Kancil berhasil mendapatkan timun yang diinginkannya tanpa tertangkap.
 
-Kura-kura menjawab dengan suara pelan, "Aku terjatuh ke dalam air dan sekarang aku tidak bisa keluar. Badanku terlalu berat untuk mendaki batu-batu ini."
+#Dengan perut yang terisi penuh. Kancil melanjutkan petualangannya menelusuri hutan.
 
-Kancil merasa iba melihat Kura-kura yang kesulitan. “Jangan khawatir, aku akan membantumu!” seru Kancil penuh semangat.
+#Bab 5: Si Kancil dan Si kura Kura
 
-Kancil berpikir sejenak. Dia melihat sebatang kayu yang cukup besar di tepi sungai. Dengan cepat, dia berlari mengambil kayu itu dan kembali ke Kura-kura. "Pegang kayu ini, dan aku akan menarikmu keluar!" ujarnya.
+#Dalam perjalanan saat melintasi tepi sungai, dia melihat seekor Kura-kura yang terjebak di antara batu-batu besar. Kura-kura tampak panik, berusaha keluar tetapi tidak berhasil. Si Kancil mendekat dan bertanya 
 
-Kura-kura mengikuti petunjuk Kancil, menggenggam kayu dengan cangkangnya. Dengan kekuatan dan ketangkasan, Si Kancil menarik kayu tersebut sambil mendorong Kura-kura dengan lembut. Setelah beberapa usaha, akhirnya Kura-kura berhasil keluar dari antara batu-batu itu dan kembali ke tanah.
+"Hei, Kura-kura! Apa yang terjadi? Kenapa kamu bisa ada di situ?"
 
-"Terima kasih, Kancil! Kamu menyelamatkanku!" kata Kura-kura dengan penuh rasa syukur.
+#Kura-kura menjawab dengan suara pelan.
+
+"Aku terjatuh ke dalam air saat berjalan di tepian dan sekarang aku tidak bisa keluar. Badanku terjepit diantar batu dan kaki ku terlalu kecil untuk lepas dari batu-batu ini"
+
+#Kancil yang melihat Kura-kura sedang dalam kesulitan, berpikir bagaimana caranya agar bisa mengeluarkannya dari batu itu. 
+
+“Jangan khawatir, aku akan membantumu!” seru Kancil penuh semangat.
+
+#Kancil berpikir sejenak dan mendapatkan ide. Dia melihat sebatang kayu yang cukup besar di tepi sungai. Dengan cepat, dia berlari mengambil kayu itu dan kembali ke Kura-kura. 
+
+"Gigit kayu ini Kura-kura!, dan aku akan menarikmu keluar!", Kancil berbicara sambil menggit kayu.
+
+#Kura-kura mengikuti petunjuk Kancil, menggit kayu dengan kuat. Dengan kekuatan dan ketangkasan, Si Kancil menggigit kayu sambil berjalan mundur dengan perlahan. Setelah beberapa usaha, akhirnya Kura-kura berhasil ditarik keluar dari antara batu-batu itu dan naik ke tepian.
+
+"Terima kasih, Kancil! Kamu telah menyelamatkanku!" kata Kura-kura dengan penuh rasa syukur dan gembira.
 
 Kancil tersenyum dan menjawab, "Sama-sama! Senang bisa membantumu. Namaku Kancil, dan siapa namamu?"
 
 “Aku Kura-kura. Mulai sekarang, kita bisa jadi teman!” balas Kura-kura dengan ceria.
 
-Kancil senang mendengar hal itu karena temannya bertambah.
+"Mulai sekarang jika kau sedang dalam kesusahaan dan butuh bantuan datang lah padaku, aku akan membantumu"
 
-Bab 6
-Penutup
+"Kau juga kancil", Kura-kura tersenyum ke arah kancil.
 
-Kancil telah melewati banyak rintangan dalam perjalanannya, mulai dari bertemu dengan harimau yang kelaparan, mengakali buaya agar bisa menyeberang ke sisi sungai, hingga mengambil timun dengan cara menjebak petani menggunakan jebakannya sendiri. Di samping itu, Kancil juga menolong Kura-kura yang terjebak di antara batu-batu.
+#Setelah berterima kasih. Kancil pun pergi meninggalkan Kura-kura dengan perasaan gembira karena dia telah membantu hewan lain dan menambah teman baru.
+
+#Bab 6: Penutup
+
+#Setelah berpetulang menyusuri hutan, Kancil pun kembali ke sarangnya dengan perasaan lelah. Saat tiba di didekat sarang Kancil disapa lagi oleh burung Kutilang.
+
+"Hai Kancil, bagaimana petualanganmu hari ini?", Kutilang bertanya kepada kancil.
+
+#Kancil menceritakan semua yang telah di lalui seharian ini.
+
+"Hai Kutilang, aku telah melalui banyak hal hari ini, mulai dari bertemu dengan harimau yang kelaparan, menipu buaya agar bisa menyeberang ke sisi sungai, hingga mengambil timun dengan cara menjebak petani ke jebakannya sendiri. Selain petualangan yang menyenangkan aku juga mendapatkan teman baru Kura-kura, saat aku menolongnya terjepit diantar bebatuan".
+
+"Wow, banyak sekali yang telah kau lalui hari ini, kau harus beristirahat dengan baik agar kau tidak melewatkan petualanganmu esok hari"
+
+"Terima kasih sarannya, Kutilang"
+
+#Kancil pun masuk ke dalam sarangnya dengan perlahan dan kemudian beristirahat.
 
 Pesan moral yang bisa diambil adalah: "Kecerdasanmu tidak hanya akan membantumu, tetapi juga dapat membantu orang lain."
